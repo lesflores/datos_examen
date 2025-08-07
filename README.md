@@ -4,6 +4,8 @@ https://forms.office.com/r/kMYPyX6Bj2
 ### Liga examen 2
 https://forms.office.com/r/CHia9L2ySw
 
+https://forms.office.com/r/12EXiG4zjU
+
 ### Respuestas de examen 😱
 
 1. ¿Qué es una hipótesis nula y una alternativa?
